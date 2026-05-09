@@ -1,4 +1,4 @@
-
+Enhance MyFitnessPal for macOS with MyFitnessPal for macOS best Extension: exercise-library & progress-analytics, the #1 extension. Includes exercise-library and
 
 
 
